@@ -76,5 +76,5 @@ you've just cloned!!
 
 ## Group
 * [`WhatsApp`](wa.me/94988088531)
-### Donate
-* [`Saweria`](https://saweria.co/donate/mhankbarbar)
+### Donate(mwythor@gmail.com)
+* [`Saweria`](https://www.mercadopago.com.br)
